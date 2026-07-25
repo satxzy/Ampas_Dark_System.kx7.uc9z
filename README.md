@@ -1,1 +1,1 @@
-# Ampas_Dark_System.kx7.uc9z
+Github Ini Telah Diawasi Oleh Dark System Jika Ingin Melepas Nya Maka Join Ch @yatimitu123
